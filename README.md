@@ -1,1 +1,1 @@
-# .github
+# chill. its just the internet.
